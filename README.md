@@ -8,4 +8,6 @@ Making this account is only for learning purpose since handling all the technica
 being a lead with a horse or armour, so yeah, here's a sample of my work!
 
 So here is the learnings I have learned from my first HR internship
+That I'm excited to share!!
+
 Hope you don't get bored while being here!
